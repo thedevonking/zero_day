@@ -1,0 +1,3 @@
+Print certain system information
+
+ghp_8sW1vrptpgv3WPWNOfCEqhoOfKRE1e2DGzep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
